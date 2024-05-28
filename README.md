@@ -14,3 +14,5 @@ tailsaraposa20@gmail.com
 @teioustfox13
 
 ![](https://media1.tenor.com/m/LeNTjGzMw9EAAAAC/lady-devil-may-cry-v.gif)
+
+> Escrito por Eric Julian
