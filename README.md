@@ -13,6 +13,6 @@ tailsaraposa20@gmail.com
 
 @teioustfox13
 
-![](https://media1.tenor.com/m/LeNTjGzMw9EAAAAC/lady-devil-may-cry-v.gif)
+![](https://media1.tenor.com/m/qCaONh4B5_UAAAAd/ashley-graham-resident-4.gif)
 
 > Escrito por Eric Julian
